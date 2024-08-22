@@ -1,0 +1,6 @@
+[iiit alld mern certificate.pdf](https://github.com/user-attachments/files/16711096/iiit.alld.mern.certificate.pdf)
+[iiit alld Java certificate.pdf](https://github.com/user-attachments/files/16711095/iiit.alld.Java.certificate.pdf)
+[infosys basics of python certificate.pdf](https://github.com/user-attachments/files/16711094/infosys.basics.of.python.certificate.pdf)
+[html certificate great learning.pdf](https://github.com/user-attachments/files/16711093/html.certificate.great.learning.pdf)
+[iiit alld javascript certificate.pdf](https://github.com/user-attachments/files/16711092/iiit.alld.javascript.certificate.pdf)
+[infosys html css js certificate.pdf](https://github.com/user-attachments/files/16711091/infosys.html.css.js.certificate.pdf)
